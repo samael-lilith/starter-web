@@ -5,3 +5,5 @@
 ##Purpose
 
 ##How to call Satan
+
+##Satan oriented programming (SOP)
