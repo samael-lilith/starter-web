@@ -2,8 +2,8 @@
 
 Some text also about the satan
 
-##Satanism in modern society
-
+##Satanism in modern society (Dnipro, Ukraine)
+Satanism in modern society doesn't depend on branch you are commiting that shit.
 ##SOP (satan-oriented-programming)
 
 SOP examle
