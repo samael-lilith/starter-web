@@ -20,4 +20,4 @@ Using satan word as placeholder is required in the name of the Lord!
 
 Fuck! I'm happy about playing music.
 
-Some more text.
+Some more text. The most wonderful day in my life!
