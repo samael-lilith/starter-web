@@ -1,6 +1,7 @@
 #The main topic
 
-Some text also about the satan
+Some text also about the satan.
+Vetal Baphometal.
 
 ##Satanism in modern society (Dnipro, Ukraine)
 Satanism in modern society doesn't depend on branch you are commiting that shit.
