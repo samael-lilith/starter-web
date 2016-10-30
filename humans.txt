@@ -7,7 +7,7 @@
 
 # THANKS
 
-Thanks to the God
+Thanks to the God of Shawarma
     <name>
 
 # TECHNOLOGY COLOPHON
